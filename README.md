@@ -2,7 +2,7 @@
 - 👀 I’m interested in Data Dnalytics
 - 🌱 I’m currently learning SQL, Power BI
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me linkedin.com/in/erin%C3%A7-emiral-9b94b3321, erincemiral@hotmail.com
+- 📫 How to reach me = linkedin.com/in/erin%C3%A7-emiral-9b94b3321, erincemiral@hotmail.com
 - 😄 Pronouns: 
 - ⚡ Fun fact: 
 
